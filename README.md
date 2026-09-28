@@ -67,6 +67,7 @@ Driven by deep interest in:
 | [Post 20](Post-020.md) | 2nd Linux Course Begins | 1st September 2026 - 5th September 2026| [View](https://lnkd.in/p/dnwESQtW) |
 | [Post 21](Post-021.md) | More Commands Come This Week | 6th September 2026 - 13th September 2026| [View](https://www.linkedin.com/posts/nirav-panchal-3b2a6227b_more-commands-come-this-week-as-the-2nd-activity-7505220562097577984-dSbv?utm_source=share&utm_medium=member_desktop&rcm=ACoAAERSXbYBBh-aUjGvgdyr18lXWWLdgA7EHro) |
 | [Post 22](Post-022.md) | Woah, Terminal is Just Awesome! | 16th September 2026 - 20th September 2026| [View](https://lnkd.in/p/duBRw6A2) |
+| [Post 23](Post-023.md) | Last Mid-Sem of Bachelor's | 21st September 2026 - 28th September 2026| [View](https://lnkd.in/p/gycBE2sR) |
 
 
 ---
