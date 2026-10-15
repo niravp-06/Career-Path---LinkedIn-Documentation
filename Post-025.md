@@ -1,7 +1,7 @@
 # Post 025 - The Academic End
 
-**Date Posted:** 15-10-2026
-**LinkedIn Post:** [View Post](paste-your-linkedin-post-link-here)
+**Date Posted:** 15th October 2026
+**LinkedIn Post:** [View Post](https://lnkd.in/p/dGVkrY-7)
 
 ---
 
