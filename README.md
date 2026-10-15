@@ -69,6 +69,7 @@ Driven by deep interest in:
 | [Post 22](Post-022.md) | Woah, Terminal is Just Awesome! | 16th September 2026 - 20th September 2026| [View](https://lnkd.in/p/duBRw6A2) |
 | [Post 23](Post-023.md) | Last Mid-Sem of Bachelor's | 21st September 2026 - 28th September 2026| [View](https://lnkd.in/p/gycBE2sR) |
 | [Post 24](Post-024.md) | 50/100 | 29th September 2026 - 7th October 2026| [View](https://lnkd.in/p/eWFvDpFU) |
+| [Post 25](Post-025.md) | The Academic End | 8th October 2026 - 15th October 2026| [View](https://lnkd.in/p/dGVkrY-7) |
 
 
 ---
