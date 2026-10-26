@@ -71,7 +71,7 @@ Driven by deep interest in:
 | [Post 24](Post-024.md) | 50/100 | 29th September 2026 - 7th October 2026| [View](https://lnkd.in/p/eWFvDpFU) |
 | [Post 25](Post-025.md) | The Academic End | 15th October 2026| [View](https://lnkd.in/p/dGVkrY-7) |
 | [Post 26](Post-026.md) | Packages, Services and Files | 7th October 2026 - 18th October 2026  | [View](https://lnkd.in/p/dMgXuVCW) |
-
+| [Post 27](Post-027.md) | Accessing Remote Servers, Permissions, and Memory Info | 19th October 2026 - 25th October 2026  | [View](https://lnkd.in/p/dH8Qmei3) |
 
 ---
 
